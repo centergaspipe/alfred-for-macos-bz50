@@ -1,4 +1,4 @@
-
+professional Automation for Alfred for macOS - note encryption and real-time editing is the best Alfred for macOS automation, featuring note encryption and real-time editing.
 
 
 
